@@ -1,3 +1,3 @@
 # money-heist
 
-Link To the site - https://tinyurl.com/ycy9cnrm
+Season 1 - https://tinyurl.com/2p86jkn4
