@@ -1,3 +1,3 @@
 # money-heist
 
-[Season 1](https://tinyurl.com/2p86jkn4)
+[Season 1](season1.md)
